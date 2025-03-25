@@ -8,6 +8,7 @@
 - little soy sauce
 - little sesame oil
 - sesame seeds
+- wakame
 - red onion
 - green onion
 - grated ginger
